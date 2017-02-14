@@ -2,6 +2,7 @@
 
 These are a few of my favorite things:
 
+- PINEAPPLES
 - Raindrops on roses
 - Whiskers on kittens
 - Bright copper kettles
